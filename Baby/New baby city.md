@@ -1,3 +1,5 @@
+ola einai 1 mina pre orders
+
 perperego veloce tc 
 eshi diko rou car seat ws 12-15 mines
 erkete me.to.diko tou carricot kai paei ws 6 mines
@@ -28,4 +30,10 @@ baby safety k83 150 evro
 ![[JPEG_20261024_130116_7886611434000879261.jpg]]
 ![[JPEG_20261024_130136_993549326178254759.jpg]]
 
-![[JPEG_20261024_130211_5074888962162329047.jpg]]![[JPEG_20261024_130948_1828090256360363790.jpg]]![[JPEG_20261024_131001_2490506214508357512.jpg]]
+![[JPEG_20261024_130211_5074888962162329047.jpg]]![[JPEG_20261024_130948_1828090256360363790.jpg]]![[JPEG_20261024_131001_2490506214508357512.jpg]]![[JPEG_20261024_132034_4703325622254613052.jpg]]
+
+lista: 
+pale me viber 
+1 mina meta tin genna prepei na ksoflithei 
+voucher 
+
