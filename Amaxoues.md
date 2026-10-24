@@ -24,4 +24,4 @@ inglesina apticaxt
 den piannei maxicosi car seat, mono ta dika tis
 stin timi perilamvanete kai to stand gia to car seat 
 erkete kai podosakkos
-
+fkenei jai to to p pisw gia to kalokeri
