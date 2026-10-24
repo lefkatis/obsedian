@@ -10,6 +10,14 @@ en dermatini
 mpenei maxicosi car seat 
 prepei na mpoun adaptors
 
+anex flo 
+en i idia apla ennen dermatiki
+
 anex iq 
 metatrepete se travel
 kliei pio diskola
+
+megala carseats en fkenun 
+maxi cosi spinel 360 plus
+maxi cosi spinel 360 smart gia na ennonete me to kinito
+maxicosi emerald 360
