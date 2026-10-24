@@ -20,5 +20,8 @@ kliei to
 
 maxi cosi to carseat ekamne polla prmt
 
-inglesina
+inglesina apticaxt
 den piannei maxicosi car seat, mono ta dika tis
+stin timi perilamvanete kai to stand gia to car seat 
+erkete kai podosakkos
+
