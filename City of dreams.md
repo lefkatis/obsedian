@@ -15,7 +15,9 @@ eshi j gia ton ilio
 
 vennicci uptile 3 1640- 1300 
 vareti 
-kliei to 
+kliei to carricot
+
+vannicci den erkete mazi me stand tou carricot
 
 maxi cosi to carseat ekamne polla prmt
 
@@ -60,6 +62,7 @@ kai max 2 mines to karotsi
 
 tilefonikos me arothmo kartas i quickpay 
 pianume viber molis valun poso 
-eshsi 1 mina na to ksofliseis 
-an ipervoun 
+eshis 1 mina na to ksofliseis 
+an ipervoun ginonte voucher xwris imerominia liksis
 
+![[JPEG_20261024_114041_837938259164044211.jpg]]![[JPEG_20261024_114310_4008189796729235959.jpg]]![[JPEG_20261024_114722_1454697024552916206.jpg]]![[JPEG_20261024_114740_7432170817844177756.jpg]]![[JPEG_20261024_114749_1889084174765763199.jpg]]
