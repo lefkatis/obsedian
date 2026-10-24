@@ -21,6 +21,7 @@ kliei to
 maxi cosi to carseat ekamne polla prmt
 
 inglesina apticaxt 1548 -> 1390
+1230 ekptwsi tou display
 den piannei maxicosi car seat, mono ta dika tis
 stin timi perilamvanete kai to stand gia to car seat 
 erkete kai podosakkos
@@ -28,7 +29,7 @@ fkenei jai to to p pisw gia to kalokeri
 
 inglesina apticat apli 1448 -> 1300
 1000 xeris to carricot
-an piasume p to display 20% ekptwsi
+an piasume p to display 20% ekptwsi (1150)
 car seat vasi tou carseat carricot+ stand  
 me to diko tis car seat 
 
