@@ -36,3 +36,13 @@ me to diko tis car seat
 inglessina elekta
 den fkenei gia to kalokeri
 
+
+Carseats 
+
+maxi cosi spinel plus 330
+maxi cosi emerald 360 pro 400
+maxi cosi spinel 360 smart 500
+
+
+krebatakia 
+
