@@ -44,5 +44,9 @@ maxi cosi emerald 360 pro 400
 maxi cosi spinel 360 smart 500
 
 
-krebatakia 
+krebatakia quax
+70x140 ginonte kai to proto mono krevataki
+
+kyo modello
+![[JPEG_20261024_111825_5452079864148826117.jpg]]
 
