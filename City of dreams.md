@@ -1,4 +1,3 @@
-**City of dreams**
 venicci upline 2 en se prosfora
 eite me to diko tis eite me to maxi cosi to carseat
 uv50 
@@ -49,4 +48,18 @@ krebatakia quax
 
 kyo modello
 ![[JPEG_20261024_111825_5452079864148826117.jpg]]
+
+130 next to me 
+baby safety 
+
+mpanio 
+maxi cosi indigo 190
+
+thelei at least 2 mines to krevati 
+kai max 2 mines to karotsi
+
+tilefonikos me arothmo kartas i quickpay 
+pianume viber molis valun poso 
+eshsi 1 mina na to ksofliseis 
+an ipervoun 
 
